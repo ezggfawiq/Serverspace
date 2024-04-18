@@ -16,7 +16,7 @@ For further information and to explore their services, visit [Serverspace's offi
 
 **Note:** Activate the promo code before replenishing your balance in the same project where the promo code was applied.
 
-Currently Serverspace no promo code, latest Serverspace latest preferential activities, please visit: [Serverspace 's official website (https://serverspace.io/ref/598503) to view.
+Currently Serverspace no promo code, latest Serverspace latest preferential activities, please visit: [Serverspace 's official website] (https://serverspace.io/ref/598503) to view.
 
 ## Serverspace Review
 ### User Reviews and Feedback
